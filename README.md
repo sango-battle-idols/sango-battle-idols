@@ -7,6 +7,6 @@
 
 <p align="center">We are the Sangō Military Academy of Music, <br>an ambitious military idol project made by a community veteran and uniform maker with experience in all areas!<br><br>A customized, complex place, made to push the limits of what groups can do!<br>A place that gives both the functional strictness of regiments and the creative freedom of scouts!</p>
 
-<p align="center">Please support us! We hope to release very soon!<br></p>
+<p align="center">Please support us! We hope to release very soon!<br>希望と明るい未来へ！</p>
 <sub><p align="right">- 『神河浩美』（Hiromi Kamikawa）</p></sub>
 </p>
