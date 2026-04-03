@@ -11,6 +11,6 @@
 
 <img width=300 height=300 src="https://github.com/user-attachments/assets/2c96c184-ba8f-44b7-a4c7-5e40cd2f022e"/>
 
-  <br></p><p align="center">「Sing for hopeㆍStrike for all!」</p>
+  <br></p><p align="center">「GO STRIKE!」</p>
 <sub><p align="right">- 『神河浩美』（Kamikawa Hiromi）</p></sub>
 </p>
