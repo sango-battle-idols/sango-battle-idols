@@ -5,7 +5,7 @@
 
 <p align="center">An upcoming group that aims to perfectly mix the fields of regiments and scouts together without losing any operational value, as well as a personal mission to unite our community and create a brighter future for all!</p>
 
-<p align="center">We are the Sangō Idol-Defense Force, <br>an ambitious military idol project made by countless community veterans and a uniform maker with experience in all kinds of groups!<br><br>A customized, complex place, made to push the limits of what groups can do, and not in a "regiscout" way;<br>a break in the monotony of our community!<br>A place that gives both the functional strictness of regiments and the creative freedom of scouts!</p>
+<p align="center">We are the Sangō Idol-Defense Force, <br>an ambitious military idol project made by multiple community veterans and a uniform maker with experience in all kinds of groups!<br><br>A customized, complex place, made to push the limits of what groups can do, and not in a "regiscout" way;<br>a break in the monotony of our community!<br>A place that gives both the functional strictness of regiments and the creative freedom of scouts!</p>
 
 <p align="center">Please support us! We are hard at work bringing you the best experience! <br><br>
 
