@@ -11,6 +11,6 @@
 
 <img width=270 height=270 src="https://github.com/user-attachments/assets/2c96c184-ba8f-44b7-a4c7-5e40cd2f022e"/>
 
-  <br></p><p align="center">「May Our Sun Shine Again || 陽がまた輝きますように」</p>
+  <br></p><p align="center">「Without Fear, Misery, or Anger ||  恐れも、惨めさも、怒りも無く」</p>
 <sub><p align="right">- 【神川 裕美】（Kamikawa Hiromi）</p></sub>
 </p>
