@@ -10,7 +10,10 @@
 <img width="2048" height="2" src="https://github.com/user-attachments/assets/029d34b7-1bd3-4c77-92e3-c744ef8fc796" />
 <img width="2048" height="2" src="https://github.com/user-attachments/assets/029d34b7-1bd3-4c77-92e3-c744ef8fc796"/>
 
-<p align="center"><br>NEWEST UPDATE :: 1O/O1/2O26<br><br>Month-Long TOURNEY :: <b>FANGSinMOONLIGHT</b> :: VAMPIRES vs. WEREWOLVES!<br>
+<p align="center"><br>NEWEST UPDATE :: 1O/O1/2O26<br><br>Month-Long TOURNEY :: <b>FANGSinMOONLIGHT</b> :: VAMPIRES vs. WEREWOLVES!<br><br>
+<img width="380" alt="image" src="https://github.com/user-attachments/assets/4bf332fe-c855-47a6-9ce6-86b83d93e9c1" />
+<img width="380" alt="image" src="https://github.com/user-attachments/assets/7ff5b7f0-9036-4196-b740-af901be64801" />
+
 
 <p align="center">Come out and root for your team! <i>Budda-budda-budda-BAM!</i></p>
 
