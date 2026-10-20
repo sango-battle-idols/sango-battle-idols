@@ -10,11 +10,7 @@
 <img width="2048" height="2" src="https://github.com/user-attachments/assets/029d34b7-1bd3-4c77-92e3-c744ef8fc796" />
 <img width="2048" height="2" src="https://github.com/user-attachments/assets/029d34b7-1bd3-4c77-92e3-c744ef8fc796"/>
 
-<p align="center"><br>NEWEST UPDATE :: 1O/O1/2O26<br><br>Month-Long TOURNEY :: <b>FANGSinMOONLIGHT</b> :: VAMPIRES vs. WEREWOLVES!<br>TOURNEY REPRESENTATIVES :: Tsuki to Taiyo :<i> OKAZAKI no SHI + NIKAIDO no SŌ</i></p>
-
-<p align="center"><img width="300" alt="image" src="https://github.com/user-attachments/assets/43944f29-be3e-4c0a-b48a-38cc2ec37990" />
-<img width="300" alt="image" src="https://github.com/user-attachments/assets/1e7b51f7-76f3-4272-8880-9a1e654e0aaa" />
-</p>
+<p align="center"><br>NEWEST UPDATE :: 1O/O1/2O26<br><br>Month-Long TOURNEY :: <b>FANGSinMOONLIGHT</b> :: VAMPIRES vs. WEREWOLVES!<br>
 
 <p align="center">Come out and root for your team! <i>Budda-budda-budda-BAM!</i></p>
 
